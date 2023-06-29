@@ -1,0 +1,3 @@
+This was a challenging assignment to say the least. In class, you spoke about having a difficult times with parnter coding and this was one of them.
+We never switched driver and navigator. I started out as driver, then the steering wheel was snatched from me along with the GPS. 
+Less than ideal situation. I made suggestions and none of them were taken into account. What I submitted was 100% me working on this after hours. Learned a lot from this assignment haha
